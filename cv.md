@@ -25,4 +25,4 @@ Higher education in Linguistics
 
  
 ## English
-C1 (I keep learning)
+B2 (I keep learning)
