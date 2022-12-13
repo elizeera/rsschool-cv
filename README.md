@@ -1,1 +1,1 @@
-# rsschool-cv
+https://elizeera.github.io/rsschool-cv/
